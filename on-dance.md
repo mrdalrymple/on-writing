@@ -15,7 +15,7 @@ When you go out to music, you're eventually going to stumble into a song that's 
 So while I was appeasing my therapist and having a good time doing it, I did not know how much better it could get.  You never know what chains of events are going to be life changing, and how innocuous it can be.  A friend who knows my journey, who knows I'm down for going out and I'm always out just sitting on a stool at a bar, reached out to me.  She told me one of her friends got caught up in work and wanted to go to this country show.  I don't mind being second pick, I like being thought of, and I saw it as opportunity.  When some plans don't work out, it can become an opportunity for others; be open to saying yes.  Well I arrived at this show, early to mingle, and my friend introduced me to <James>.  James is down with music; they're in a band and runs an account that helps people find the more honky tonk music around.  Music eventually starts, I throw my ear protection in, and wiggle away.  Then some real fuckery starts up; people just start pairing up and doing a conjoined upgraded wiggle around the floor.  It was was wonderful to watch; they're joy with the dancing and music was contagious and helped me feel even more joy wiggling and listening to this band.  Learned that night that James and another person Robbie (who no one introduced me to and I was too shy to say hello) were starting up some more structured dance lessons that were once a week for four weeks. My friend was going to go to some of them, invited me, and I had just met James so I knew some familiar faces. What do you think my answer was? I definitely said no didn't I? Like why would I want to do something that looks fun with some nice people, it might be embarrassing, and I was gonna be bad at it.  That's the point, get comfortable with that feeling of embarrassment until you realize it's not embarrassing at all; and you're there to learn, you're going to be bad.  But you're not a bad dancer if both you and your partner are smiling and having a genuinely good time.  I'm all about saying yes when an opportunity presents itself and it feels like the next natural thing for me. So I said yes. Say yes to the dance.
 
 
-
+## The Lesson
 
 
 
@@ -23,6 +23,7 @@ So while I was appeasing my therapist and having a good time doing it, I did not
 Sections
 - Hook
 - The Journey (we all have ours, simple or complex -- different things mean different things to different people)
+- The Lesson (structure and experience)
 - Commitment/Community?
   + Group/Clique and how two-step helps break that up
 - Etiquette/Hygiene?
