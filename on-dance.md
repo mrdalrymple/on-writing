@@ -17,6 +17,23 @@ So while I was appeasing my therapist and having a good time doing it, I did not
 
 ## The Journey 2
 
+Original
+"Digital. Right, here we are; yes? All of us together in the here, in the now; yeah? It's ALL about digital; yeah? The web allows us to be everywhere with our eyes; right? Hey. Rocket. Once the future, now the past. Noise. Communication; yeah? Through sound waves; right? Wave bye bye. Gone. Digital. Right. Nature. Right? Renewal. Recycle. It's a lifecycle, man. It's digital, right? Time. Melting. Tempus fugit. In-flight. Gone forever. Shoot it down. We missed it. Digital." - Shangy, digital soothsayer
+
+Edited
+"Digital. Here we are, all of us together in the here, in the now. It's ALL about digital. The web allows us to be everywhere with our eyes. Rocket, once the future, now the past. Noise, communication, through sound waves. Wave bye bye, gone. Digital. Nature, renewal, recycle, it's a lifecycle. It's digital. Time, melting. Tempus fugit. In-flight, gone forever, shoot-it down. We missed it. Digital." - Shangy, digital soothsayer
+
+
+Digital. That is a technological era we saw happen. We can't just not think about technology though, because it shapes our humanity by giving power to others. Ever since the stick was picked up. The one with it has an advantage over other people. The person with the stick doesn't have to convince with reason. They only have to give enough so that the system works just enough where the others don't coordinate and surround the stick-holder. Ever since then, the  We don't have enough leadership thinking about the future and controlling and guiding us. It's a hard problem to solve, because we're adversarial. We want to make sure we have the right technology to protect us from anyone who may want to harm or control us. It takes trust and there are those umong us who can never be trusted. For whatever reason, their goal is to subjigate and dominate. It's a thirst for power over others, even if those
+
+If technology was a snowball heading down a snowcapped mountain, the stick is the palm-packed ball at the start and the transistor is where we start to see that ball as a giant boulder, knowing the only thing stopping it's growth would be a lack of more snow to pick up. Those looking, see the snow all around us, wishing someone before us had made rules and an environment where they could be enforced. Rules to stop someone from going to the top of the mountain, packing some snow into a small ball, and letting it roll towards our town.
+Some outstretch their arms towards it rolling down towards us, pointing and shouting "DIGITAL!". Others look up, see it as a small distance object maybe heading towards us, maybe could miss our town, so since it hasn't hit us yet, and possible might not, we go about our days. Someone else can solve it, we won't find out if it will hit our town in my lifetime.
+
+
+
+
+
+
 There is a great compassion that has been building in me; a compassion for us that began life towards the end of the 20th century and are going forth into the 21st. An era that's technology transited from analog to digital due to the creation and rapid expansion of computers, along with the deployment of the biggest communication network in human history. We've created a system where the common-folk carry around a device that enables them to get in touch with friends, loved ones, and basically anyone on the planet with ease. No society has been able to do this before, We can witness life from a screen. Humans have never had this capability before,  An era where this was thrust upon us masses in an experimental way. Like someone throwing <find good analogy> and we are just supposed to see how it best works for us. The system we're currently in doesn't seem to be prioritizing the well-being of the masses. That combined with this rapid evolution of technology, we are at times navigating it's usage for our individual survival without worrying about the impact on our humanity and culture. We've had stories of science fiction to try and imagine the future and prepare our minds for the possibilities; however it seems more entertaining and intriguing to focus on the horrors technology can bring and more niche to philosophize about how technology is integrated into our lives for the betterment. But since we don't seem to have that focus and regulation as a society right now, my compassion builds for us in the system we are in. We often feel not enough is being done to better our lives; the system demands more from us than seems reasonable. Even those who just want to live simple and social lives have to put so much in with little reward.
 
 For myself, that compassion channels into protest.
@@ -48,3 +65,8 @@ Sections
 - Bands/Music
 - Outro
  + All I felt I've done on this journey has just been show up.? Inspiring of just showing up? like that's step 1 or an early step
+
++ "The Joke" - Because sex might lead to dance.  It's an offputting joke, but it hints at something, dance can be a very intimate experience. and it's something that should be pushed under the bed, swept under the rug. Dance doesn't have to be gendered, but we fall into that trap of men leading, women following. There's nothing wrong with that, and it's a comfortable societal norm. But it absolutely can be outside of then, men dancing with men, women dancing with women, whomever, dancing with whomever, doing whichever role. It's a fun activity, and two consenting adults can dance. I will dance with either, and took lessons for a month to practice following.
+
++Ending: so how do you prevent someone from weilding a stick and subjegating you? I don't know, our only solution has been to weild one too, to weild it better than the other, but with restraint. To go about our lives as best we can, knowing we are in a dance of two people circling eachother. One wanting to subjigate, the other just wanting a peaceful life but knowing the stick is necessary to protect against the other. The subjigator knowing that if they use the stick first,
+I don't fucking know. All I know is that's the dance I don't want to do; but I am appreciative of the peace I know have in my life, even as it seems the world around me is crumbling. I will vote for the lesser of two evils if it gets us closer
